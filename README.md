@@ -1,4 +1,4 @@
-# 👋 Hello World! I'm [Sahyam Chakraborty] 🌟
+# 👋 Hello World! I'm Sahyam Chakraborty 🌟
 
 **Coding Explorer | Tech Enthusiast | Emoji Aficionado**
 
